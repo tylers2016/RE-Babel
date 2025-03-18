@@ -42,3 +42,28 @@ Resilio Sync B2MLLPYY77HBCGR4RQJOVIWUVELWD4W2U
 Resilio Sync BK6VORSOAPPEHB4D522QZERIZQETO3WY3
 Sci-Hub, Library Genesis, Z-Library备份
 https://annas-archive.org/datasets
+
+
+易书书籍搜索:  https://search.yibook.org/
+
+Zlibrary网:  http://singlelogin.me/（需魔法）
+
+    镜像网站:  https://zlib.yibook.org/
+
+PDF电子书网:  https://www.pdfdrive.com/
+
+外语报刊杂志:  https://magazinelib.com/
+
+三秋书屋:  https://www.sanqiu.mobi/
+
+电子书共享网:  https://lorefree.com/
+
+书舟搜索:  https://www.shuzhou.cc/
+
+书格:  https://new.shuge.org/
+
+识典古籍:  https://www.shidianguji.com/
+
+熊猫搜书:  https://xmsoushu.com/
+
+格式转换工具:  https://www.aconvert.com/
